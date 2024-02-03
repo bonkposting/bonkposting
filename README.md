@@ -5,6 +5,6 @@ i'm a queer, neurodivergent person passionate about rolling dice, clicking heads
 
 **interests include:**
 
-- hacking, running, and designing small tabletop
+- hacking, running, and designing small tabletop RPGs
 - going buckwild in the digital arena (Super Smash Bros. Melee, Counter-Strike 2, Fortnite, Quake)
 - making videos about niche hobbies and communities that deserve more attention
